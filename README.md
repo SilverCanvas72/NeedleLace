@@ -70,4 +70,18 @@ Finished progress:
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/68f42006-b3b7-429b-a4d3-aecde6900830)
 
 
+### Hour 4:
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/85fb1772-9cda-476d-ad06-4988a5a31419)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/d57dd876-2df0-4487-b6d2-0f4aa4596fde)
 
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/3aeee446-f9d9-436c-bd9c-6b708adc5b87)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/4238986e-cf5a-43fc-8224-2a93e2ae8968)
+
+
+#### I have been trying to estimate how many stiches there are in a row and this is what I have guessed (I might count later on):
+200 stiches per row
+800 stiches per hour
+
+A new stich every 4.5 seconds non stop for 1 hour.
+ 
