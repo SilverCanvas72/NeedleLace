@@ -40,6 +40,34 @@ Here is the ends finished off:
 ## Border (Cordonnet) Finished:
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c2944c69-5fa1-44ce-83f4-f0a84a9ec90f)
 
+## Lace:
+
+### Hour 3:
+
+#### Progress:
+
+First row:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/524bc5ea-b560-42c6-93dc-f277eded9ec5)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/538646c3-41f1-4e7b-be0f-24466b02dc35)
+
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/6b9251d7-545e-481c-a5e1-90c7d5c002b7
+
+Second row:
+
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/585e149a-61fc-468b-8e79-41c64d56fb70)
+
+
+Next two rows:
+
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/0d611846-c297-455e-8d21-08869a2a4400)
+
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/83d4363b-7555-4097-ad52-8042cec77964)
+
+
+
+Finished progress:
+
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/68f42006-b3b7-429b-a4d3-aecde6900830)
 
 
 
