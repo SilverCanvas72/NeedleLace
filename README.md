@@ -96,5 +96,13 @@ Only did half an hour here as I had other comittments. 2.5 hours.
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/cc8bcf22-e61c-4582-9819-26e80bfba998)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/e7c07722-ff9b-4368-9fbc-01320c00cb43)
 
+### Hour 5:
 
- 
+I am so close to being finished on this really long row. The stiches of the border are very titlty packed and progress is slow I am looking forward to changing things up.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/2eddb842-95f9-401c-b040-9182baf5cfed)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/0e9981f4-9bb5-491b-8705-5ca8f7c0af54)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/4208e28e-43c9-4c72-ab23-974e1d5f657a)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/ae20b710-54f0-47e1-9ecd-add9f122f789)
+
