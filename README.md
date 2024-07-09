@@ -84,4 +84,17 @@ Finished progress:
 800 stiches per hour
 
 A new stich every 4.5 seconds non stop for 1 hour.
+
+### Hour 4.5
+
+Only did half an hour here as I had other comittments. 2.5 hours.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/2354d04c-f27d-4bab-a63d-cbec4b1f7007)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/e92b7208-fb1c-4889-aa49-8913c9756be2)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/9661408d-f2b3-4f64-980e-26d830054c28)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/cc8bcf22-e61c-4582-9819-26e80bfba998)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/e7c07722-ff9b-4368-9fbc-01320c00cb43)
+
+
  
