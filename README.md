@@ -106,3 +106,24 @@ I am so close to being finished on this really long row. The stiches of the bord
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/4208e28e-43c9-4c72-ab23-974e1d5f657a)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/ae20b710-54f0-47e1-9ecd-add9f122f789)
 
+
+## Color:
+
+### Hour 6:
+
+I finished the border, stiched it onto the cordonnet and did the start of the right side of the border.
+
+I then started one of the color sections with a twisted button hole stich. 
+
+#### Progress:
+
+##### Border:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/a553367d-888c-4728-b56f-cfe9857980ff)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/d475dce0-b38e-4881-acd7-d728a520f858)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/68414556-35c4-4d3c-8278-20628e3a0fd7)
+
+##### Color:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/df0fdfcc-37b7-4e5f-bcb5-45ecd671a6ca)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/7ec12019-b7e2-438d-9cb7-0e76b96811ba)
+
+
