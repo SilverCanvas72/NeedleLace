@@ -126,4 +126,16 @@ I then started one of the color sections with a twisted button hole stich.
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/df0fdfcc-37b7-4e5f-bcb5-45ecd671a6ca)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/7ec12019-b7e2-438d-9cb7-0e76b96811ba)
 
+### Hour 7:
+
+I finished the green section, started and finisehd the purple section and did the first row of the blue circle.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/15a09422-cda6-4d33-899d-3e2683cccd8b)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/f2a992cf-9db8-4b85-990e-00d5ef4f12f8)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/b5f88135-642a-438a-b1bc-46e13293a627)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/a5beca28-e868-4c0b-9a13-114006378ce2)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/131e4d78-89bf-40c8-8f4c-00088ca5cd43)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/15dacab4-289b-4966-902f-fc322beb14d8)
+
 
