@@ -171,3 +171,13 @@ FInished both the lines coming out of the orange shape. I also did the small gre
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c2c3f5a7-03a2-43c2-8a82-de285be25f6d)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/78718114-c619-4593-824f-37b2c1e8bcf4)
 
+### Hour 11:
+
+Finished the blue square and started the sides of the mouse cursor. This is done in a very tight stich so is slow work. It is also in a very dark color so it is hard to find the holes.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/563f007e-09d7-4aad-b2e6-4b67c3fff9c6)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/719b3525-b706-4f22-84a4-bf82ce47f88f)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/1d4b8add-c64e-4c3d-a6b2-f7a9faec4636)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/1dea7d9c-bf20-47cd-9bab-d39f8e943917)
+
