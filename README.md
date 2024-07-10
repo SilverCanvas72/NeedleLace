@@ -138,4 +138,15 @@ I finished the green section, started and finisehd the purple section and did th
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/131e4d78-89bf-40c8-8f4c-00088ca5cd43)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/15dacab4-289b-4966-902f-fc322beb14d8)
 
+### Hour 8:
+
+I finished the blue circle, started and finished the pink triangle and started the orange shape.
+
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/45cbdda1-3cbb-4138-a90b-d694d921e260)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/d458fe3e-d243-4e72-bd9f-fa7b2354b9d5)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/d2f0218f-516d-45e7-9442-482f0872d2f5)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/17f170b0-ff1f-4902-90b1-f3a777fe3a5a)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/890b4596-956d-4d58-ad0c-84fdff921fcf)
 
