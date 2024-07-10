@@ -160,3 +160,14 @@ Continued on the bug oragne shape. I used a corded brussels stich, the same as t
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/6000f221-20f0-4cc9-a4ae-28c1dbccb6a7)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c5aeef28-3c1b-4401-b378-47466935625d)
 
+### Hour 10:
+
+FInished both the lines coming out of the orange shape. I also did the small green rectangle in the bottom right. Then I started the blue square.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/405d3b7f-cb26-4674-a5f2-e503bc001802)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/bb8b8668-21d6-4ea2-a79d-242d240e5b8c)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/95e48749-d490-4ce2-952e-62484b8c3604)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c2c3f5a7-03a2-43c2-8a82-de285be25f6d)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/78718114-c619-4593-824f-37b2c1e8bcf4)
+
