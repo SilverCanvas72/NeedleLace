@@ -181,3 +181,14 @@ Finished the blue square and started the sides of the mouse cursor. This is done
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/1d4b8add-c64e-4c3d-a6b2-f7a9faec4636)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/1dea7d9c-bf20-47cd-9bab-d39f8e943917)
 
+### Hour 12:
+
+Finished all the sides of the mouse cursor and started the main section.
+
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/94c57f96-a249-46fd-bdab-913c71dd12df)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c10d57d7-ee35-456a-a061-699f183033e3)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/dca86398-1f97-425b-b527-0a3d40a954c9)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/61be3cc0-7a8b-484e-bc3d-3e383845d773)
+
