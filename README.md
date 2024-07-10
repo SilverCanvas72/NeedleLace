@@ -150,3 +150,13 @@ I finished the blue circle, started and finished the pink triangle and started t
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/17f170b0-ff1f-4902-90b1-f3a777fe3a5a)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/890b4596-956d-4d58-ad0c-84fdff921fcf)
 
+### Hour 9:
+
+Continued on the bug oragne shape. I used a corded brussels stich, the same as the border but a lot less densly packed.
+
+#### Progress:
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c4d6a2fa-e4ee-4ce9-8fcc-30349868e712)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/d9acd4f4-8444-4b04-9cc9-3c2892264e69)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/6000f221-20f0-4cc9-a4ae-28c1dbccb6a7)
+![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/c5aeef28-3c1b-4401-b378-47466935625d)
+
