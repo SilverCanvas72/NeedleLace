@@ -215,4 +215,15 @@ Finished the cursor! I then started the left border with the little bit of time 
 ![image](https://github.com/user-attachments/assets/c9c70607-6f28-4d51-9a07-92350e263d14)
 ![image](https://github.com/user-attachments/assets/a0d0acea-daf5-4769-9a56-8f8eefeaf681)
 
+### Hour 15:
+
+Finished one of the sections on the left hand side of the border, did a bit of the right hand border and started the green square.
+
+#### Prgoress:
+
+![image](https://github.com/user-attachments/assets/1ad7fb28-88ff-439a-b3af-5f04379b9497)
+![image](https://github.com/user-attachments/assets/106bbfdd-3779-48ab-a7fa-c965be0919eb)
+![image](https://github.com/user-attachments/assets/5cdc6b20-558d-4bd9-acbc-d3a3a8fd5bc5)
+![image](https://github.com/user-attachments/assets/70447aa2-c034-4264-b48d-b877e18de3e2)
+![image](https://github.com/user-attachments/assets/e0628eb3-9951-47cd-9c06-42809675e62d)
 
