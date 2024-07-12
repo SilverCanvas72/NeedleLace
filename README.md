@@ -192,3 +192,14 @@ Finished all the sides of the mouse cursor and started the main section.
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/dca86398-1f97-425b-b527-0a3d40a954c9)
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/61be3cc0-7a8b-484e-bc3d-3e383845d773)
 
+### Hour 13:
+
+Kept working on the cursor, the stiches are very tighlty packed, in the same style as the border. It is very slow going.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/97aba019-618b-4fc4-ada1-6137656dae8d)
+![image](https://github.com/user-attachments/assets/452bc1f3-da59-4dfb-ade6-4295f59ec95a)
+![image](https://github.com/user-attachments/assets/d1ffe68a-565d-4ef1-84e2-da6631d552d9)
+![image](https://github.com/user-attachments/assets/29f0d585-3cf2-49e2-959c-b3febff561ff)
+
