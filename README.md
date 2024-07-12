@@ -203,3 +203,16 @@ Kept working on the cursor, the stiches are very tighlty packed, in the same sty
 ![image](https://github.com/user-attachments/assets/d1ffe68a-565d-4ef1-84e2-da6631d552d9)
 ![image](https://github.com/user-attachments/assets/29f0d585-3cf2-49e2-959c-b3febff561ff)
 
+### Hour 14:
+
+Finished the cursor! I then started the left border with the little bit of time I had left.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/c478a834-cec8-4011-82ab-ef1edb85c527)
+![image](https://github.com/user-attachments/assets/a7df4073-d0a7-401f-96e3-70465081defc)
+![image](https://github.com/user-attachments/assets/2f60d81d-f17c-42a0-bd3e-154d5bdb6272)
+![image](https://github.com/user-attachments/assets/c9c70607-6f28-4d51-9a07-92350e263d14)
+![image](https://github.com/user-attachments/assets/a0d0acea-daf5-4769-9a56-8f8eefeaf681)
+
+
