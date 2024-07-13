@@ -227,3 +227,14 @@ Finished one of the sections on the left hand side of the border, did a bit of t
 ![image](https://github.com/user-attachments/assets/70447aa2-c034-4264-b48d-b877e18de3e2)
 ![image](https://github.com/user-attachments/assets/e0628eb3-9951-47cd-9c06-42809675e62d)
 
+### Hour 16:
+
+In this hour I finished green and orange squares and the second part of the purple square.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/d0d0f6c4-b1de-4be1-b518-f07bcb492ed7)
+![image](https://github.com/user-attachments/assets/40d72c64-9dc4-4e1f-b047-1569fba41c04)
+![image](https://github.com/user-attachments/assets/05482ae4-a9f3-4514-ad38-00ca8b3dde91)
+![image](https://github.com/user-attachments/assets/23a3b2e9-a89d-423a-9817-362512dad938)
+![image](https://github.com/user-attachments/assets/f00c18c1-3839-4514-b537-29434e8880db)
