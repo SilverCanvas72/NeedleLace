@@ -238,3 +238,16 @@ In this hour I finished green and orange squares and the second part of the purp
 ![image](https://github.com/user-attachments/assets/05482ae4-a9f3-4514-ad38-00ca8b3dde91)
 ![image](https://github.com/user-attachments/assets/23a3b2e9-a89d-423a-9817-362512dad938)
 ![image](https://github.com/user-attachments/assets/f00c18c1-3839-4514-b537-29434e8880db)
+
+### Hour 17
+
+In this hour I started and finished the long, blue rectangle on the left of the peice. I then went back to the border.
+The stiches on the border are. so. tightly. packed. and it is very slow going.
+
+#### Progress
+
+![image](https://github.com/user-attachments/assets/aa58325f-216f-4fd4-9413-ce6156786f34)
+![image](https://github.com/user-attachments/assets/544eb72a-e079-412e-9be3-d679f5e597c2)
+![image](https://github.com/user-attachments/assets/1d729e8b-f2bc-4627-aa35-aa2444f99583)
+![image](https://github.com/user-attachments/assets/9fda3a68-bd2a-43bd-a097-16cb449f701a)
+![image](https://github.com/user-attachments/assets/71abba15-6720-43b2-bf46-b3e687bfc880)
