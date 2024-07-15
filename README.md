@@ -262,3 +262,15 @@ Only about 40 minute session here, just kept working on the border
 ![image](https://github.com/user-attachments/assets/1e5efdbc-44df-4684-965b-61420dadd8ad)
 ![image](https://github.com/user-attachments/assets/0668fd1d-8025-4ffa-a4ab-4fc1be29ef98)
 
+### Hour 19:
+
+In this hour I finished the left hand side of the border and kept working on the right hand side. There was one thin section in particular that was very fnicky and slow.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/d492bc21-a04f-46bb-a78a-8f03142e0596)
+![image](https://github.com/user-attachments/assets/e0797cf5-3167-44f5-b80e-6567231ad583)
+![image](https://github.com/user-attachments/assets/a6fb8f5b-e531-46eb-b221-5a3adcd86077)
+![image](https://github.com/user-attachments/assets/f88d7527-cb0e-446f-be6f-467e3ae0f9cc)
+![image](https://github.com/user-attachments/assets/36c27db8-c96e-4459-870e-84874f337cf0)
+
+
