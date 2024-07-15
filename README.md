@@ -251,3 +251,14 @@ The stiches on the border are. so. tightly. packed. and it is very slow going.
 ![image](https://github.com/user-attachments/assets/1d729e8b-f2bc-4627-aa35-aa2444f99583)
 ![image](https://github.com/user-attachments/assets/9fda3a68-bd2a-43bd-a097-16cb449f701a)
 ![image](https://github.com/user-attachments/assets/71abba15-6720-43b2-bf46-b3e687bfc880)
+
+### Hour 18
+
+Only about 40 minute session here, just kept working on the border
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/ed778084-113d-4ef1-925d-efd11943958f)
+![image](https://github.com/user-attachments/assets/1e5efdbc-44df-4684-965b-61420dadd8ad)
+![image](https://github.com/user-attachments/assets/0668fd1d-8025-4ffa-a4ab-4fc1be29ef98)
+
