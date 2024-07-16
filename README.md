@@ -274,3 +274,13 @@ In this hour I finished the left hand side of the border and kept working on the
 ![image](https://github.com/user-attachments/assets/36c27db8-c96e-4459-870e-84874f337cf0)
 
 
+### Hour 20:
+
+I am now working on the top of the border this is lots of long rows.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/21e28ccc-ec84-4ed0-907a-87e5a7b4a97a)
+![image](https://github.com/user-attachments/assets/3f3e98da-8954-4f69-99c2-dab26cbfb626)
+![image](https://github.com/user-attachments/assets/db1a2448-5253-4790-8016-331848671994)
+![image](https://github.com/user-attachments/assets/0d45ecac-040a-411a-b193-6c01bf9d788e)
