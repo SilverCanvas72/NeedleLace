@@ -284,3 +284,15 @@ I am now working on the top of the border this is lots of long rows.
 ![image](https://github.com/user-attachments/assets/3f3e98da-8954-4f69-99c2-dab26cbfb626)
 ![image](https://github.com/user-attachments/assets/db1a2448-5253-4790-8016-331848671994)
 ![image](https://github.com/user-attachments/assets/0d45ecac-040a-411a-b193-6c01bf9d788e)
+
+### Hour 21:
+
+I did more on the top border. I have finished the last row on half of it and attached one side.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/23996f8a-e71e-4190-a050-d9e470384e4b)
+![image](https://github.com/user-attachments/assets/3c8e7c46-5093-4e95-9f16-12289afb5877)
+![image](https://github.com/user-attachments/assets/526ed0d5-3a35-476b-a2d8-3c2ecebb507f)
+![image](https://github.com/user-attachments/assets/41891e12-dca9-4e99-aa53-19df0e4ba29d)
+![image](https://github.com/user-attachments/assets/dd4a6ab1-a876-4085-929e-4ffa47fe828f)
