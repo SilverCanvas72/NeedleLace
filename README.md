@@ -307,3 +307,14 @@ I finally finished the border!!!! And attached thread for the next square.
 ![image](https://github.com/user-attachments/assets/c613ae5c-dbad-48dd-819c-632af567dc92)
 ![image](https://github.com/user-attachments/assets/48e7a419-6a54-4253-be34-10e7b257d533)
 
+### Hour 23:
+
+Started and finished the green square. The started diagonal purple rectangle.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/8d5ce010-cc92-4185-9441-dabec9156018)
+![image](https://github.com/user-attachments/assets/29b8bf9d-5e42-42e7-8823-680329b32488)
+![image](https://github.com/user-attachments/assets/8996e62e-7316-4040-9e94-192be0affb02)
+![image](https://github.com/user-attachments/assets/2827f856-2de9-4efa-9780-5edff7fa4bcf)
+![image](https://github.com/user-attachments/assets/ec539add-3b6d-44e1-ac2c-2c92a9ea8cdc)
+
