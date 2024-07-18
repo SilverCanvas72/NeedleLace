@@ -318,3 +318,14 @@ Started and finished the green square. The started diagonal purple rectangle.
 ![image](https://github.com/user-attachments/assets/2827f856-2de9-4efa-9780-5edff7fa4bcf)
 ![image](https://github.com/user-attachments/assets/ec539add-3b6d-44e1-ac2c-2c92a9ea8cdc)
 
+### Hour 24:
+
+I finished all of the lace parts! This involved finishing the purple rectangle and starting and finishing the pink circle. I then did the border for the pink circle as I still had thread left.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/25b69533-8376-4f8e-9988-05f1f44bbfbd)
+![image](https://github.com/user-attachments/assets/c04b8e56-f2f9-42c3-ad43-08eeacac60cb)
+![image](https://github.com/user-attachments/assets/5b45c7bf-5fbd-4abc-98ee-92562a9beb59)
+![image](https://github.com/user-attachments/assets/afff6141-a86d-4ac1-9ce6-a7f543fe1116)
+![image](https://github.com/user-attachments/assets/4b04200e-a755-463c-8d76-4a62f3bf9ddd)
+
