@@ -296,3 +296,14 @@ I did more on the top border. I have finished the last row on half of it and att
 ![image](https://github.com/user-attachments/assets/526ed0d5-3a35-476b-a2d8-3c2ecebb507f)
 ![image](https://github.com/user-attachments/assets/41891e12-dca9-4e99-aa53-19df0e4ba29d)
 ![image](https://github.com/user-attachments/assets/dd4a6ab1-a876-4085-929e-4ffa47fe828f)
+
+### Hour 22:
+
+I finally finished the border!!!! And attached thread for the next square.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/88bce6fb-7cca-4d19-9ecd-51c3c9e65dbd)
+![image](https://github.com/user-attachments/assets/697478ef-2b79-4e96-949e-70f77eda94e1)
+![image](https://github.com/user-attachments/assets/c613ae5c-dbad-48dd-819c-632af567dc92)
+![image](https://github.com/user-attachments/assets/48e7a419-6a54-4253-be34-10e7b257d533)
+
