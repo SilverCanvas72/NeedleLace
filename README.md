@@ -329,3 +329,14 @@ I finished all of the lace parts! This involved finishing the purple rectangle a
 ![image](https://github.com/user-attachments/assets/afff6141-a86d-4ac1-9ce6-a7f543fe1116)
 ![image](https://github.com/user-attachments/assets/4b04200e-a755-463c-8d76-4a62f3bf9ddd)
 
+### Hour 25:
+
+Started and finished the border for the green square. Next started the border for the blue rectangle.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/1c216b53-c044-4c98-8a6b-3df5a2a10325)
+![image](https://github.com/user-attachments/assets/9de6814e-8b69-4f8e-96f0-d6c304bc02c7)
+![image](https://github.com/user-attachments/assets/747277fa-03bf-4542-8a50-18db975417d5)
+![image](https://github.com/user-attachments/assets/36b99eb0-1bf2-4fb5-8e29-b80199010cae)
+
