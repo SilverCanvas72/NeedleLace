@@ -362,3 +362,13 @@ Finished purple section, started and finished the orange and green sections and 
 ![image](https://github.com/user-attachments/assets/c054f364-8c6d-42b0-a8b8-f4ae693620e4)
 ![image](https://github.com/user-attachments/assets/e0fd51bc-23e7-4dad-ae97-6ef52076c48a)
 
+### Hour 28:
+
+Finished the blue circle and the second light blue shape.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/ee94c7df-247e-4581-95ff-a44249ae622b)
+![image](https://github.com/user-attachments/assets/d724b7b6-cc59-4314-82b4-314bee124815)
+![image](https://github.com/user-attachments/assets/9116fa80-ec19-47ab-9dec-0b0609b77485)
+![image](https://github.com/user-attachments/assets/a124dbef-af93-407f-9fab-19e3d78bca5b)
