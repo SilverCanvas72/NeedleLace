@@ -386,3 +386,14 @@ Finished the big purple square, started and finished the green rectanlge and sta
 ![image](https://github.com/user-attachments/assets/ecd218a7-3789-4a5e-bc8a-8dd6b1679426)
 ![image](https://github.com/user-attachments/assets/e31ba97d-7e10-4cbb-bee9-3a31fe452280)
 
+### Hour 30:
+
+Finished the big, complex orange shape. Started the pink triangle.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/9fb40130-313e-464b-9c9a-843c410ef841)
+![image](https://github.com/user-attachments/assets/7bce575b-9735-4476-991c-e6b2d7dfe0a0)
+![image](https://github.com/user-attachments/assets/11f5eff2-4b6b-401a-8c88-a2324a8ddebd)
+![image](https://github.com/user-attachments/assets/242036ae-1022-457c-a87f-22e8b895af9c)
+![image](https://github.com/user-attachments/assets/0e721fd0-e0bb-4e9c-aa5f-bfb54e2be9eb)
+
