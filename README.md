@@ -372,3 +372,17 @@ Finished the blue circle and the second light blue shape.
 ![image](https://github.com/user-attachments/assets/d724b7b6-cc59-4314-82b4-314bee124815)
 ![image](https://github.com/user-attachments/assets/9116fa80-ec19-47ab-9dec-0b0609b77485)
 ![image](https://github.com/user-attachments/assets/a124dbef-af93-407f-9fab-19e3d78bca5b)
+
+### Hour 29:
+
+Finished the big purple square, started and finished the green rectanlge and started the big ornage shape.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/47d46006-c453-4e32-a448-ac48cbebd2d2)
+![image](https://github.com/user-attachments/assets/730062a0-fa72-427a-8064-1309ac136afb)
+![image](https://github.com/user-attachments/assets/c5bc2782-bd52-47f2-9132-f988b3e9f0df)
+![image](https://github.com/user-attachments/assets/4df77e3d-51e5-4e2f-bf05-ff5bb563703b)
+![image](https://github.com/user-attachments/assets/bef8bb2e-94ab-4cf8-b856-8270c9b037bb)
+![image](https://github.com/user-attachments/assets/ecd218a7-3789-4a5e-bc8a-8dd6b1679426)
+![image](https://github.com/user-attachments/assets/e31ba97d-7e10-4cbb-bee9-3a31fe452280)
+
