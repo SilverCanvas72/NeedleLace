@@ -340,3 +340,14 @@ Started and finished the border for the green square. Next started the border fo
 ![image](https://github.com/user-attachments/assets/747277fa-03bf-4542-8a50-18db975417d5)
 ![image](https://github.com/user-attachments/assets/36b99eb0-1bf2-4fb5-8e29-b80199010cae)
 
+### Hour 26:
+
+Finished the border for the blue rectangle and then started working on the purple section.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/8c61796c-f01a-47d9-a86e-e2a3b3e426ca)
+![image](https://github.com/user-attachments/assets/17844dcb-fb9f-4728-90af-775a99e8541d)
+![image](https://github.com/user-attachments/assets/88558c51-5a2c-43a9-b030-1dc4a2f408e1)
+![image](https://github.com/user-attachments/assets/ce26627a-6fdd-43a0-8bfa-862bf1d2c8de)
+
