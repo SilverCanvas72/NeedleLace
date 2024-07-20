@@ -351,3 +351,14 @@ Finished the border for the blue rectangle and then started working on the purpl
 ![image](https://github.com/user-attachments/assets/88558c51-5a2c-43a9-b030-1dc4a2f408e1)
 ![image](https://github.com/user-attachments/assets/ce26627a-6fdd-43a0-8bfa-862bf1d2c8de)
 
+### Hour 27:
+
+Finished purple section, started and finished the orange and green sections and started the blue section.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/4c597192-d72d-42e2-be35-f340641fd36b)
+![image](https://github.com/user-attachments/assets/7e56888f-60ab-403a-8789-d8190c8dfd45)
+![image](https://github.com/user-attachments/assets/d492a2cf-35b5-4f9a-8701-480939d4c888)
+![image](https://github.com/user-attachments/assets/c054f364-8c6d-42b0-a8b8-f4ae693620e4)
+![image](https://github.com/user-attachments/assets/e0fd51bc-23e7-4dad-ae97-6ef52076c48a)
+
