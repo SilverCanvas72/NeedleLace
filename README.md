@@ -397,3 +397,13 @@ Finished the big, complex orange shape. Started the pink triangle.
 ![image](https://github.com/user-attachments/assets/242036ae-1022-457c-a87f-22e8b895af9c)
 ![image](https://github.com/user-attachments/assets/0e721fd0-e0bb-4e9c-aa5f-bfb54e2be9eb)
 
+### Hour 31:
+
+Finished the pink triangle and the green rectangle. Then I started the drak section of the mouse cursor.
+
+#### Progress:
+![image](https://github.com/user-attachments/assets/8d88edae-db63-4224-948f-a525bd98221a)
+![image](https://github.com/user-attachments/assets/17c753f1-c659-4e40-9589-fad03f1765f3)
+![image](https://github.com/user-attachments/assets/7f6564c3-ab51-4757-a7ef-01c8cbf4d90f)
+![image](https://github.com/user-attachments/assets/d9b308b9-f9bd-4227-9b5a-80f4d733d499)
+![image](https://github.com/user-attachments/assets/251636f3-421e-444a-b103-71fb275611c7)
