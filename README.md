@@ -407,3 +407,14 @@ Finished the pink triangle and the green rectangle. Then I started the drak sect
 ![image](https://github.com/user-attachments/assets/7f6564c3-ab51-4757-a7ef-01c8cbf4d90f)
 ![image](https://github.com/user-attachments/assets/d9b308b9-f9bd-4227-9b5a-80f4d733d499)
 ![image](https://github.com/user-attachments/assets/251636f3-421e-444a-b103-71fb275611c7)
+
+### Hour 32:
+
+Finished first section of cark part and did about half of the light part of the mouse cursor.
+
+#### Porgress:
+
+![image](https://github.com/user-attachments/assets/a61f0fae-50ee-4fa8-9332-7ff9e4bcef2d)
+![image](https://github.com/user-attachments/assets/a0bf5f15-d686-4983-87c2-4eb3392de534)
+![image](https://github.com/user-attachments/assets/77704f2e-ea70-4384-8b1e-1a65efb7b8bf)
+![image](https://github.com/user-attachments/assets/45c94198-1c4b-4db3-b5ec-17a363b78551)
