@@ -418,3 +418,15 @@ Finished first section of cark part and did about half of the light part of the 
 ![image](https://github.com/user-attachments/assets/a0bf5f15-d686-4983-87c2-4eb3392de534)
 ![image](https://github.com/user-attachments/assets/77704f2e-ea70-4384-8b1e-1a65efb7b8bf)
 ![image](https://github.com/user-attachments/assets/45c94198-1c4b-4db3-b5ec-17a363b78551)
+
+
+### Hour 33:
+
+Finshed mouse cursor. Started biorder, border.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/0a5de918-1391-44ac-a409-24626e101b99)
+![image](https://github.com/user-attachments/assets/64f4f5fa-1737-47a8-83ca-a60c046bd99d)
+![image](https://github.com/user-attachments/assets/5dbcdd36-efaf-4b34-b8bf-f46d2d992155)
+![image](https://github.com/user-attachments/assets/2950950a-d707-4090-a4b6-516a03e79260)
