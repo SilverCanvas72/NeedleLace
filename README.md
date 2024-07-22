@@ -430,3 +430,15 @@ Finshed mouse cursor. Started biorder, border.
 ![image](https://github.com/user-attachments/assets/64f4f5fa-1737-47a8-83ca-a60c046bd99d)
 ![image](https://github.com/user-attachments/assets/5dbcdd36-efaf-4b34-b8bf-f46d2d992155)
 ![image](https://github.com/user-attachments/assets/2950950a-d707-4090-a4b6-516a03e79260)
+
+### Hour 34:
+
+Finished the bottom section of the inner border. 
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/7c35fde3-2c50-485d-b34b-7e83e9879d92)
+![image](https://github.com/user-attachments/assets/037939b7-a0c2-48ef-b702-59174e0b1b61)
+![image](https://github.com/user-attachments/assets/208e28fb-0bcd-4331-92d4-98d0750cd4df)
+![image](https://github.com/user-attachments/assets/da5374aa-0fa0-4e3a-8632-e648d1ea5f36)
+![image](https://github.com/user-attachments/assets/bd276722-fce5-4162-8485-1a3fad5335b3)
