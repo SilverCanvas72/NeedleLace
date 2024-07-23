@@ -465,3 +465,18 @@ Finished all but one section of the outer border! Surely only one more hour to g
 ![image](https://github.com/user-attachments/assets/d2c48b39-7e82-4d1d-949f-2d6715476dfa)
 ![image](https://github.com/user-attachments/assets/016bfe37-5dd1-49e2-a1f7-d829bddaf011)
 
+### Hour 37:
+
+FINISHED!!!!! Pulled it off the backing now have to pull out all the threads.
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/b9255f26-587d-485f-94a8-c6c0bf7638ce)
+![image](https://github.com/user-attachments/assets/7c8dfbac-ab5e-4005-ba86-4e85c92826c4)
+![image](https://github.com/user-attachments/assets/b6b844ad-72b6-492d-82de-fbdee19b2e29)
+![image](https://github.com/user-attachments/assets/3ccb770a-893e-40fb-bad7-13f1e06a847a)
+![image](https://github.com/user-attachments/assets/36d5e00d-e40e-4bef-af30-67c5b3747d93)
+![image](https://github.com/user-attachments/assets/6d9c00df-6bb4-46ae-a1e3-8a75cd09d7ba)
+![image](https://github.com/user-attachments/assets/6dbae033-5b75-4140-b128-689af74dd312)
+
+YAY!!!
