@@ -453,3 +453,15 @@ Finished the inner border and started the outer border.
 ![image](https://github.com/user-attachments/assets/2a726b47-fb70-4ea9-ac77-f0a9d583884a)
 ![image](https://github.com/user-attachments/assets/fa7e2c35-1375-4022-9a47-e46e638fcc49)
 
+### Hour 36:
+
+Finished all but one section of the outer border! Surely only one more hour to go!
+
+#### Progress:
+
+![image](https://github.com/user-attachments/assets/99e13710-d7fe-4052-b461-04c875b51145)
+![image](https://github.com/user-attachments/assets/2da891c8-36f4-4dc1-b0b0-fbbfe6f1d5c2)
+![image](https://github.com/user-attachments/assets/aebdbe43-189f-48df-ad63-ca618e78efab)
+![image](https://github.com/user-attachments/assets/d2c48b39-7e82-4d1d-949f-2d6715476dfa)
+![image](https://github.com/user-attachments/assets/016bfe37-5dd1-49e2-a1f7-d829bddaf011)
+
