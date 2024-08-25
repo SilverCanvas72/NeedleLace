@@ -1,5 +1,10 @@
 # NeedleLace
+Needle lace project. Incredibly small and fine. 
+## Finished Peice:
+![image](https://github.com/user-attachments/assets/34a60230-01a3-46a8-8ee8-c6d80e44cc8d)
 
+<details>
+  <summary>Hourly Progress</summary>
 ## Border - (Cordonnet)
 
 ![image](https://github.com/SilverCanvas72/NeedleLace/assets/173105295/3edd632e-3eda-4b38-ac68-809133e8aeb6)
@@ -480,3 +485,4 @@ FINISHED!!!!! Pulled it off the backing now have to pull out all the threads.
 ![image](https://github.com/user-attachments/assets/6dbae033-5b75-4140-b128-689af74dd312)
 
 YAY!!!
+</details>
