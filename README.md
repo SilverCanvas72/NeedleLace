@@ -1,5 +1,5 @@
 # NeedleLace
-Needle lace project. Incredibly small and fine. 
+Needle lace project. Incredibly small and fine. Needle lace is made from incredibly fine sewing-like thread. It is a series of stiches into each other that are mounted to the bracing called the cordonette. You can expand the bottom of the readme to get a insight into the long process of needle lace.
 ## Finished Peice:
 ![image](https://github.com/user-attachments/assets/34a60230-01a3-46a8-8ee8-c6d80e44cc8d)
 
